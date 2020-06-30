@@ -8,3 +8,5 @@ Luna Lovegood was born on the 13th of February 1981. She is the daughter of Xeno
 * deeply empathetic
 * can see thestrals
 * direct
+
+> My mum always said things we lose have a way of coming back to us in the end. If not always in the ways we expect.
