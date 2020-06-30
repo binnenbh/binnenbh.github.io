@@ -10,3 +10,6 @@ Luna Lovegood was born on the 13th of February 1981. She is the daughter of Xeno
 * direct
 
 > My mum always said things we lose have a way of coming back to us in the end. If not always in the ways we expect.
+
+![Created by SarahKristin published under CC-License](https://upload.wikimedia.org/wikipedia/commons/thumb/8/81/Evanna_Lynch_acrylic_ink.jpg/800px-Evanna_Lynch_acrylic_ink.jpg)
+Created by SarahKristin published under CC-License
