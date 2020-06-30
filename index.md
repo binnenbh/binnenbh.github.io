@@ -1,1 +1,3 @@
 # Luna Lovegoody
+
+Luna Lovegood was born on the 13th of February 1981. She is the daughter of Xenophilius Lovegood and Pandora Lovegood, and lives near the Weasley’s house, in a rook-like house in Devon. Her mother accidently died while experimenting with spells when Luna was nine. She was then raised by her father, editor of the magazine ‘The Quibbler’. She attended Hogwarts School of Witchcraft and Wizardry from 1992-1999.
